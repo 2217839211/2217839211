@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @youngnue
-- 👀 I’m interested in bike motor
-- 🌱 I’m currently learning coding, Marketing, Business.
+- 👀 I’m interested in coding, business and tech.
+- 🌱 I’m currently learning coding, Marketing & Business.
 - 💞️ I’m looking to collaborate on anyone who looking for nice product reasourse. I got connections in China.
 - 📫 How to reach me email lookjohnny.goods@gmail.com
 
